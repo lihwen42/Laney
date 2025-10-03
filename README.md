@@ -1,5 +1,6 @@
-# Laney
-🐱Accounting
+# Tsai, Lih Wen
+🐱Accounting Department
 
 # Experience
-🥇Accounting Firm: Deloitte
+🥇FJCU
+🥇Accounting Firm: 3 years in Deloitte (in-charge)
